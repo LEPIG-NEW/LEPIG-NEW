@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on .....
 - 📫 How to reach me you will have to swim (proably)
 - 😄 Pronouns: bozo
-- ⚡ Fun fact: i really don't know anything bcs i'm young (not 18) but i will try my best and be able to do my personal project. (yappiiing)
+- ⚡ Fun fact: i really don't know anything bcs i'm young (16) but i will try my best and be able to do my personal project. (yappiiing)
 
 <!---
 LEPIG-NEW/LEPIG-NEW is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
